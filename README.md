@@ -1,1 +1,1 @@
-Me and Ausra's project.
+Me and Ausra's pharmacy.
